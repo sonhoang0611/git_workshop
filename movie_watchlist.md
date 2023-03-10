@@ -1,8 +1,3 @@
 The Shawshank Redemption (1994)
 The Grand Budapest Hotel (2014)
 The Dark Knight 3 (2008)
-The Godfather (1974)
-12 Angry Men (1957)
-Schindler's List (1993)
-The Lord of the Rings: The Return of the King (2003)
-Pulp Fiction (1994)
